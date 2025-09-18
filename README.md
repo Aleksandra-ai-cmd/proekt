@@ -1,1 +1,1 @@
-Ceрикова Александра
+Serikova Aleksandra
